@@ -1,2 +1,0 @@
-# Midnightz
-a clan website
